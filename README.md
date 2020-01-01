@@ -1,2 +1,0 @@
-# Whatshapx
-CYBER BLACK WHITE
